@@ -8,4 +8,5 @@ ensuring quality solutions that meet clients’ objectives. I have excellent com
 to promote user satisfaction and gain work experience.
 
 My LinkedIn - https://www.linkedin.com/in/anton-drevetskyi-web-dev
+
 My portfolio website - https://adrevetskyifolio.netlify.app
